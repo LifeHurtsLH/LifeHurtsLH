@@ -18,7 +18,7 @@
 
 - 💬 Ask me about **c#, Gamedev, linux servers**
 
-- 📫 How to reach me **LeafContactMe@protonmail.com**
+- 📫 How to reach me **currently undergoing rework of my socials and private domain**
 
 - 🧛 Proud enjoyer of **https://draculatheme.com/**
 
